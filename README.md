@@ -1,0 +1,2 @@
+# Pompa-Air
+ Kami bergerak di bidang jasa perbaikan dan Service Mesin Pompa Air/Sanyo , melayani Panggilan perbaikan Mesin Pompa Air Beserta Instalasinya  untuk Wilayah Kota Medan Sekitarnya. Untuk Jasa perbaikan mesin Pompa Air Medan kami meminta biaya Rp.120.000,- belum termasuk jika ada pergantian alat atau keperluan yang berhubungan dengan Perbaikan Pompa Air tsb. Mesin Pompa Air hidup tapi tidak mengeluarkan air Mesin Pompa Air tidak hidup sama sekali Mesin Pompa Air dengan air mengalir kecil Pemasangan Mesin Pompa Air Baru Mesin Pompa Air Selalu Mancing DLL  
